@@ -1,16 +1,19 @@
-## Hi there 👋
-
-<!--
-**xcinyue/xcinyue** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![](https://64.media.tumblr.com/8dd6cc26f2d9c13c32e145ef6f04d33c/806a453653500bb2-9b/s400x600/6c21a429da2f0e577d95d35ffead168a3d7c0982.gifv)
+![](https://64.media.tumblr.com/8dd6cc26f2d9c13c32e145ef6f04d33c/806a453653500bb2-9b/s400x600/6c21a429da2f0e577d95d35ffead168a3d7c0982.gifv)
+![235223](https://github.com/user-attachments/assets/82093a2a-bac8-45af-ba08-6ef8693b0593)
+![](https://64.media.tumblr.com/cb2bd44416f96a181ff8594d2cee6eef/6f072ea04e7b6c72-15/s100x200/cdfda7c9c3bd9111a9960b562cdac6333c6be8b5.jpg)
+![](https://64.media.tumblr.com/a8005009908fe11ec7e3719a8c7ad9c0/6f072ea04e7b6c72-72/s100x200/74e388ab76e58e3220239ac9df751f21e47ccc8a.pnj)
+![](https://64.media.tumblr.com/8f8d1b7631956817aad832c057668c1c/76d97e8ae108454d-1c/s100x200/d1479397841e501de5d6de3b3a99d41a3f3d9b00.webp)
+![](https://64.media.tumblr.com/1ec32be0117e9cf780ad33dcac9a9248/473928ea48888009-f3/s100x200/25522e1ec76c6628fb43d2de0e2ca7f1c989f7be.jpg)
+![](https://64.media.tumblr.com/e20618374aa10d6d6edbae3affbf68bd/6f072ea04e7b6c72-80/s100x200/0abc759e2257efafaeeb780facb2e16e20546e53.webp)
+![](https://64.media.tumblr.com/c403073b41fedb3f914608d7c1557015/6f072ea04e7b6c72-50/s250x400/1e1e2aaac4e2a43628d45ac29a16f8468aaf9fa4.pnj)
+![](https://64.media.tumblr.com/8ef6d8e6c69c6965ac635fe9293d7d64/6f072ea04e7b6c72-6f/s100x200/1ef325c98fdc63cf9f80909a2a83349ebfa62977.gifv)
+![](https://64.media.tumblr.com/d2088436b706f4b59818b44388d6dafa/473928ea48888009-a4/s100x200/86fc54d539410896a854fe21db0f2cf5640891ae.pnj)
+ㅤㅤㅤ
+![](https://64.media.tumblr.com/a690b26ac8fd4f5b52929409cb649af1/6f072ea04e7b6c72-c7/s250x400/5dcbeb70dc4b4a33b3ddea04c2475847df327246.gifv)
+![](https://64.media.tumblr.com/1591ce545caa74f7985197763deca5b9/f1498ee937fc1ed0-b2/s100x200/2369137663cf237fcc4e05d41dc0700b79671000.gifv#)
+![](https://64.media.tumblr.com/876945b9ad5b0f4ec13dc85602fe33b6/6f072ea04e7b6c72-c7/s100x200/1ce848dfcc4461af9d3971e10acd52404c4f66d3.gifv)
+![](https://64.media.tumblr.com/476610b7ed3a206b6b359cdf8d5f9019/f1498ee937fc1ed0-f1/s100x200/1c279a3f4aec9f05f4f68535e25adcf78859b6ab.gifv)
+![](https://64.media.tumblr.com/a8dcea81b285606d6305c659aafcb7a4/473928ea48888009-bc/s100x200/19ca044945604fc3365801e0164d82a58fcac9ae.pnj)
+![](https://64.media.tumblr.com/51988c4913f8ee359dc919162c6bb975/473928ea48888009-50/s100x200/1f9afe4383ba4068201c09d4c00104f5fec3b658.gifv)
+![]()
