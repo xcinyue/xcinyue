@@ -1,1 +1,1 @@
-<img width="1674" height="1507" alt="Frame 23" src="https://github.com/user-attachments/assets/4bfa21d3-36e1-4d3d-8df5-621b97ba1b45" />
+![kuro ref](https://github.com/user-attachments/assets/bea48a17-6771-41ac-a5ba-ff95f85f48e7)
